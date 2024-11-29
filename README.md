@@ -33,8 +33,8 @@ If you have an interesting project or dataset in these areas, let's team up!
 
 ## 📫 How to Reach Me
 - Discord: @hatice_83549
-- [LinkedIn]: [Your LinkedIn profile URL]
-- Email: [Your professional email address]
+- LinkedIn: www.linkedin.com/in/hatice-ince
+- Email: haticei1756@gmail.com
 
 ## 😄 Pronouns
 She/her
